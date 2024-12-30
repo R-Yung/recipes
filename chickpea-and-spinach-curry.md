@@ -1,6 +1,6 @@
 Chickpea and Spinach Curry
 ===========================
-hello rivki your project is veri nice!!!😊😊😊😊😊😊🧊🧊🧊🧊🧊😂😂😂😂
+hello rivki your project is veri nice!!!😡😡😡😡😡🧊🧊🧊🧊🧊😂😂😂😂
 
 Ingredients:
 - 2 can of chickpeas, drained and rinsed
