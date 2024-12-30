@@ -1,10 +1,10 @@
 Chickpea and Spinach Curry
 ===========================
-hello rivki your project is veri nice!!!😊😊😊😊😊😊🧊🧊🧊🧊🧊
+hello rivki your project is veri nice!!!😊😊😊😊😊😊🧊🧊🧊🧊🧊😂😂😂😂
 
 Ingredients:
-- 1 can of chickpeas, drained and rinsed
-- 1 can of coconut milk
+- 2 can of chickpeas, drained and rinsed
+- 2 can of coconut milk
 - 2 cups fresh spinach
 - 1 onion, diced
 - 3 cloves of garlic, minced
